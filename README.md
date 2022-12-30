@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PRATAY-DAS
 - 👀 I’m interested in .NEW PROJECTS AND OPEN SOURCE ..
 - 🌱 I’m currently DOING BTECH IN COMPUTER SCIENNCE..
-- 💞️ I’m looking to collaborate on ..NEW PROJECTS AND OPEN SOURCE.
+- 💞️ I’m looking to collaborate on ..OPEN SOURCE PROJECTS.
 - 📫 How to reach me .
 - PRATAYDAS.MAHAKAL@GMAIL.COM..
 
